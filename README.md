@@ -1,4 +1,4 @@
-### Hello there 🧔🏼‍♂🧔🏻‍♂️
+### Hello there 🧔🏻‍♂️
 
 * 👨🏻‍💻 My name is Elliot
 * 🇺🇸 I'm a freelance web developer from Houston, TX
